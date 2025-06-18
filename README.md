@@ -1,3 +1,3 @@
-- 👤 Hi, I’m @mariussde
+- 👤 Hi, I’m Marius
 - 🌱 you can see my work at https://www.mariuslefter.com/
 - 📫 How to reach me ---> marius.sdeing@gmail.com or https://www.linkedin.com/in/marius-lefter-lefter-17948b2a2/
