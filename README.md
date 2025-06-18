@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @mariussde
-- 🌱 I’ve worked on
-- 💞️ I’m looking to collaborate on 
+- 👤 Hi, I’m @mariussde
+- 🌱 you can see my work at https://www.mariuslefter.com/
 - 📫 How to reach me ---> marius.sdeing@gmail.com or https://www.linkedin.com/in/marius-lefter-lefter-17948b2a2/
